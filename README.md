@@ -1,1 +1,1 @@
-# gg7253.github.io
+https://gg7253.github.io/
